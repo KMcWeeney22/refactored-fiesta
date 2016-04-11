@@ -26,5 +26,5 @@ To win the foremost place,
 The crew to row, the boat to go
 The eight to win the race.
 
--- James Lister Cuthbertson
+-- *James Lister Cuthbertson*
 http://www.public-domain-poetry.com/james-lister-cuthbertson/racing-eight-7333
