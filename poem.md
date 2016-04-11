@@ -8,7 +8,7 @@ The slider oiling aft,
 The forward sweep, the backward leap
 That speed the flying craft?
 
-*A racing eight* of perfect mould,
+_A racing eight_ of perfect mould,
 True to the builder’s law,
 That takes the water’s gleaming gold
 Without a single flaw.
@@ -17,7 +17,7 @@ Harmonious to the core,
 That vibrates to her polished skin
 The tune of wave and oar.
 
-*A racing eight* and no man late,
+_A racing eight_ and no man late,
 And all hearts in the boat;
 The men who work and never shirk,
 who long to be afloat.
@@ -26,5 +26,5 @@ To win the foremost place,
 The crew to row, the boat to go
 The eight to win the race.
 
--- James Lister Cuthbertson
+-- *James Lister Cuthbertson*
 http://www.public-domain-poetry.com/james-lister-cuthbertson/racing-eight-7333
